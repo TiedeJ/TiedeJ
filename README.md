@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @TiedeJ
+- 👀 I’m interested in gaming or Python
+- 🌱 I’m currently learning how to create an calculating program.
+- 💞️ I’m looking to collaborate on 
+- 📫 Add me on snapchat: Tiedeuu
